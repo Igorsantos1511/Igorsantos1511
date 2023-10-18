@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Igorsantos1511
 - 👀 I’m interested in just chill
 - 🌱 I’m currently learning something 
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 🙂 I really like astronomy
+
 
 <!---
 Igorsantos1511/Igorsantos1511 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
