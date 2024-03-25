@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Igorsantos1511
-- 👀 I’m interested in just chill
-- 🌱 I’m currently learning something 
+- 👀 I just wanna chill
+- 🌱 I’m currently learning nothing I guess
 - 🙂 I really like astronomy
 
 
